@@ -68,5 +68,4 @@ I thrive in great working environments and bring energy, creativity, and resilie
 - Bring energy and creativity wherever I go  
 
 📫 **Let’s Connect:**  
-- GitHub: [YourUsernameHere]  
-- LinkedIn: [YourLinkedInHere]  
+email: mbongimon00@gmail.com
